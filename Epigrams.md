@@ -6,3 +6,4 @@
 1. The Great is the enemy of the Good! Unfortunately, the Good is also the enemy of the Great.
 1. I am not a statistic. Why does everyone continually insist on treating me like one?
 1. Statistics help us understand the world around us. Statistics will not help me understand you.
+1. Television is the opiate of the people.
