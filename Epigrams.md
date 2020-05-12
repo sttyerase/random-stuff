@@ -7,3 +7,4 @@
 1. I am not a statistic. Why does everyone continually insist on treating me like one?
 1. Statistics help us understand the world around us. Statistics will not help me understand you.
 1. Television is the opiate of the people.
+1. In an event-driven 4-dimensional space-time universe, what does it mean to say that something exists?
