@@ -5,6 +5,7 @@
 1. Many paths lead to the top of the mountain, some more difficult than others. The only one that matters is the one that you choose.
 1. The Great is the enemy of the Good! Unfortunately, the Good is also the enemy of the Great.
 1. I am not a statistic. Why does everyone continually insist on treating me like one?
-1. Statistics help us understand the world around us. Statistics will not help me understand you.
+1. Statistics help us understand the world around us. Statistics will not help me understand you fully.
 1. Television is the opiate of the people.
 1. In an event-driven 4-dimensional space-time universe, what does it mean to say that something exists?
+1. Life is micro. Politics is macro.  No wonder politicians are so out of touch with the people they seek to govern.
