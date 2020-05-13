@@ -9,3 +9,4 @@
 1. Television is the opiate of the people.
 1. In an event-driven 4-dimensional space-time universe, what does it mean to say that something exists?
 1. Life is micro. Politics is macro.  No wonder politicians are so out of touch with the people they seek to govern.
+1. Inspiration rarely comes when called. That's why it's a good idea to take notes when it does.
