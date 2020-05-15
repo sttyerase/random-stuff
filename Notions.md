@@ -11,3 +11,7 @@
 1. In an event-driven 4-dimensional space-time universe, what does it mean to say that something exists?
 1. Life is micro. Politics is macro.  No wonder politicians are so out of touch with the people they seek to govern.
 1. Inspiration rarely comes when called. That's why it's a good idea to take notes when it does.
+1. Success fades (rapidly).  Failures will follow you forever.
+1. One of the consequences of unlimited opportunity is an obscured sense of direction.
+1. Here's the problem with conspiracy theories: they are oh so easy to come by and nearly impossible to prove. They should not drive our everyday choices.
+1. Do humans serve the rules or do the rules serve humanity?
