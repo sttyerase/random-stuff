@@ -14,5 +14,6 @@
 1. Success fades (rapidly).  Failures will follow you forever.
 1. One of the consequences of unlimited opportunity is an obscured sense of direction.
 1. Here's the problem with conspiracy theories: they are oh so easy to come by and nearly impossible to prove (because so little factual evidence exists to support them). 
-   They exist primarily on conjecture. They make for great stories to entertain.  They should not drive everyday choices and decisions.
+   They exist primarily on conjecture. They make for great stories to entertain.  They should never drive everyday choices and decisions.
 1. Do humans serve the rules or do the rules serve humanity?
+1. Youth is largely uncertainty.  Old age is incredible frustration.
