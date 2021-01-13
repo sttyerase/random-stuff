@@ -17,3 +17,4 @@
    They exist primarily on conjecture. They make for great stories to entertain.  They should never drive everyday choices and decisions.
 1. Do humans serve the rules or do the rules serve humanity?
 1. Youth is largely uncertainty.  Old age is incredible frustration.
+1. I'm always amazed at the number of people, who know absolutely nothing about a subject, yet are quite willing to open their mouths and pretend.
