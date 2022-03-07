@@ -8,4 +8,4 @@
 1. Herman Melville in Moby Dick or the White Whale: "....hell is an idea first born on an undigested apple-dumpling;
    and since then perpetuated through the hereditary dyspepsias nurtured by Ramadans.
 
-1.  
+1. John Kenneth Galbraith: "Pundits forecast, not because they know, but because they are asked."
