@@ -7,7 +7,8 @@
 4. I am not a statistic. Why does everyone continually insist on treating me like one?
 5. Statistics help us understand the world around us. Simple statistics will not help me understand you fully.
 6. Fifty per cent of all statistics are wrong.
-7. No path to the top of the mountain is the correct path.  
+7. Many paths lead to the top of the mountain.  
+   No path to the top of the mountain is the correct path.  
    Some paths are easier than others.  The easiest path is not necessarily the best path.  
    Some paths require certain tools.  Other paths require different tools.  
    Only the path you choose matters.  
@@ -45,3 +46,4 @@
 30. Those who can, do.  
     Those who can't, teach.  
     Those who have no clue at all enter upper management or politics.
+31. Never underestimate the human ability to make something simple complicated.
