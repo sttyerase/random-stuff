@@ -42,5 +42,6 @@
 27. Making stuff happen takes effort...**lots** of effort...much more than you think it should.
 28. You don't have a real thought until you can write it clearly on paper.
 29. Life is a continuum of endless uncertainty.  Living is the process of managing that uncertainty.
-30. Those who can, do.  Those who can't, teach.  Those who have no clue at all enter upper management or politics.
-31. 
+30. Those who can, do.  
+    Those who can't, teach.  
+    Those who have no clue at all enter upper management or politics.
