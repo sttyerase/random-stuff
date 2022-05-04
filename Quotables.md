@@ -9,3 +9,7 @@
    and since then perpetuated through the hereditary dyspepsias nurtured by Ramadans.
 
 1. John Kenneth Galbraith: "Pundits forecast, not because they know, but because they are asked."
+
+1. Will Rodgers: "I am not a member of an organized political party. I am a Democrat."
+
+
