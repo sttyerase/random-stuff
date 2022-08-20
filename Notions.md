@@ -40,10 +40,11 @@
     Optimistic Engineer: I'll bet we can find a way to fill this glass and keep it full.  
     Practical Engineer: This glass is way to big for the amount of water we have.
 26. It's so hard to know if you are speaking truth to power, or if you are just dead wrong.
-27. Making stuff happen takes effort...**lots** of effort...much more than you think it should.
+27. Making stuff happen takes effort...**lots** of effort ... always much more than you think it should.
 28. You don't have a real thought until you can write it clearly on paper.
 29. Life is a continuum uncertainty.  Living is the process of managing that uncertainty.
 30. Those who can, do.  
     Those who can't, teach.  
     Those who have no clue at all enter upper management or politics.
 31. Never underestimate the human ability to make something simple complicated.
+32. I'm thoroughly saddened by all we have lost and most grateful for all we have experienced.
