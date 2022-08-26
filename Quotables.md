@@ -17,3 +17,5 @@
 7. Benjamin Franklin: "Wise men don’t need advice. Fools won’t take it.”
 
 8. Carl Sagan: "You can't convice a believer of anything; for their belief is not based on evidence, it's based on a deep seated need to believe."
+
+9. Mark Twain: “Continuous improvement is better than delayed perfection.”
