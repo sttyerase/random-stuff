@@ -19,3 +19,5 @@
 8. Carl Sagan: "You can't convice a believer of anything; for their belief is not based on evidence, it's based on a deep seated need to believe."
 
 9. Mark Twain: “Continuous improvement is better than delayed perfection.”
+
+10. Shakespeare, King Lear, ActI, SceneIV, Fool: "Truth's a dog must to kennel; he must be whipped out, when the lady brach may stand by the fire and stink."
