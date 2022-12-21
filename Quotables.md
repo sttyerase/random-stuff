@@ -14,3 +14,4 @@
 10. Shakespeare, King Lear, ActI, SceneIV, Fool: "Truth's a dog must to kennel; he must be whipped out, when the lady brach may stand by the fire and stink."
 11. David Graeber, anthropologist: "the ultimate, hidden truth of the world is that it is something that we make, and could just as easily make differently."
 12. Rev. Raphael Warnock, U.S. Senator from Georgia: "I believe that democracy is the political enactment of a spiritual idea. The notion that each of us has within us a spark of the divine"
+13. Leonardo DaVinci: "The greatest deception men suffer is from their own opinion."
