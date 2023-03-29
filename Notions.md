@@ -47,4 +47,5 @@
     Those who can't, teach.  
     Those who have no clue at all enter upper management or politics.
 31. Never underestimate the human ability to make something simple complicated.
-32. I'm thoroughly saddened by all we have lost and most grateful for all we have experienced.
+32. I'm thoroughly saddened by all we have lost and completely grateful for all we have experienced.
+33. We have no control over time passing. We can control how we fill the time we have.
