@@ -31,7 +31,7 @@
     One man must move others to move the mountain.  
     Nothing motivates like cold hard cash.
 20. You have the right to remain silent. Anything you say can and will be held against you in a court of public opinion.
-21. Eventually, you must chose a side, even if it's the wrong one.
+21. Eventually, you must choose a side, even if it's the wrong one.
 22. One aspect of being human is the ability to absorb, process and live with ambiguity.
 23. What happened in the past has passed.  Do we change? Do we learn? Do we grow, as a result?
 24. When you fight a "fire", you fight the fire on the fire's terms. If you prevent the fire, you never fight it at all.
