@@ -41,7 +41,7 @@
     Practical Engineer: This glass is way to big for the amount of water we have.
 26. It's so hard to know if you are speaking truth to power, or if you are just dead wrong.
 27. Making stuff happen takes effort...**lots** of effort ... always much more than you think it should.
-28. You don't have a real thought until you can write it clearly on paper.
+28. You don't have a real thought until you can express it clearly in two or three sentences on paper.
 29. Life is a continuum of uncertainty.  Living is the process of managing that uncertainty.
 30. Those who can, do.  
     Those who can't, teach.  
