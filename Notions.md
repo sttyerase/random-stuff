@@ -49,3 +49,4 @@
 31. Never underestimate the human ability to make something simple complicated.
 32. I'm thoroughly saddened by all we have lost and completely grateful for all we have experienced.
 33. We have no control over time passing. We can control how we fill the time we have.
+34. I don't expect to change hearts and minds, but I will not sit back, shut up and let complacency rule.
