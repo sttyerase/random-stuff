@@ -3,7 +3,7 @@
 
 1. Sometimes I wish to return to a time when nearly everything was potential and so very little was realization.
 2. We should always strive for perfection, but never expect it, especially of others.   
-3. The Great is the enemy of the Good! Unfortunately, the Good is also the enemy of the Great.
+3. The Great is the enemy of the Good! The Good is also the enemy of the Great.  Frequently, we use the fact that the Great is the enemy of the Good as an excuse to not try.
 4. I am not a statistic. Why does everyone continually insist on treating me like one?
 5. Statistics help us understand the world around us. Simple statistics will not help me understand you fully.
 6. Fifty per cent of all statistics are wrong.
