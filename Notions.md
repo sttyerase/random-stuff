@@ -12,7 +12,7 @@
    Some paths are easier than others.  The easiest path is not necessarily the best path.  
    Some paths require certain tools.  Other paths require different tools.  
    Only the path you choose matters.  
-   You have not failed if you back up and start again.  
+   You have not failed if you back down and start again.  
 8. Television is the opiate of the people.
 9. In an event-driven 4-dimensional space-time universe, what does it mean to say that something exists?
 10. Life is a ceaseless upstream relay against the Second Law of Thermodynamics. What is the influence that causes it to organize and persist?
