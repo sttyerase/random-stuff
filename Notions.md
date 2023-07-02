@@ -14,7 +14,7 @@
    Only the path you choose matters.  
    You have not failed if you back down and start again.  
 8. Television is the opiate of the people.
-9. In an event-driven 4-dimensional space-time universe, what does it mean to say that something exists?
+9. In an event-driven 4-dimensional space-time universe, what does it mean to say that something exists? Does the apple exist? Or does it happen?
 10. Life is a ceaseless upstream relay against the Second Law of Thermodynamics. What is the influence that causes it to organize and persist?
 11. Life is micro. Politics is macro.  No wonder politicians are so out of touch with the people they seek to govern.
 12. Inspiration rarely comes when called. That's why it's a good idea to take notes when it does.
