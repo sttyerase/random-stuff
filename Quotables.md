@@ -15,3 +15,4 @@
 11. David Graeber, anthropologist: "the ultimate, hidden truth of the world is that it is something that we make, and could just as easily make differently."
 12. Rev. Raphael Warnock, U.S. Senator from Georgia: "I believe that democracy is the political enactment of a spiritual idea. The notion that each of us has within us a spark of the divine"
 13. Leonardo DaVinci: "The greatest deception men suffer is from their own opinion."
+14. Tears for Fears: "I can't stand this indecision married to a lack of vision.  Everybody wants to rule the world."
