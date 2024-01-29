@@ -53,5 +53,6 @@
 35. Substituting conservative orthodoxy for liberal orthodoxy is not thinking for youself.
 36. A point exists beyond which speculation becomes fruitless.  Humans seem incapable of finding that point.
 37. Words matter. Words form the basis of our understanding of the world around us. If words don't matter, then we live separately.
-38. Every human being to a person overvalues their contribution to our shared existence and completely undervalues what they receive in return.
+38. Nearly every human being to a person overvalues their contribution to our shared existence and completely undervalues what they
+    receive in return.
 
