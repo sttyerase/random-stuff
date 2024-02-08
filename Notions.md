@@ -53,6 +53,8 @@
 35. Substituting conservative orthodoxy for liberal orthodoxy is not thinking for youself.
 36. A point exists beyond which speculation becomes fruitless.  Humans seem incapable of finding that point.
 37. Words matter. Words form the basis of our understanding of the world around us. If words don't matter, then we live separately.
-38. Nearly every human being to a person overvalues their contribution to our shared existence and completely undervalues what they
+38. Human beings almost to a person overvalue their contribution to our shared existence and completely undervalue what they
     receive in return.
+39. Contrary to popular opinion, hindsight is not 20/20.  Hindsight (history) begins to lose focus based on the lies we must tell
+    ourselves to feel comfortable with what we saw.
 
