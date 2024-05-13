@@ -50,7 +50,7 @@
 32. I'm thoroughly saddened by all we have lost and completely grateful for all we have experienced.
 33. We have no control over time passing. We can control how we fill the time we have.
 34. I don't expect to change hearts and minds, but I will not sit back, shut up and let complacency rule.
-35. Substituting conservative orthodoxy for liberal orthodoxy is not thinking for youself.
+35. Substituting conservative orthodoxy for liberal orthodoxy or vice versa is not thinking for youself.
 36. A point exists beyond which speculation becomes fruitless.  Humans seem incapable of finding that point.
 37. Words matter. Words form the basis for communicating our understanding of the world around us. If words don't matter, then we live separately.
 38. Human beings almost to a person overvalue their contribution to our shared existence and completely undervalue what they
