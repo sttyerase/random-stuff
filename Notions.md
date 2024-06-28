@@ -57,4 +57,7 @@
     receive in return.
 39. Contrary to popular opinion, hindsight is not 20/20.  Hindsight (history) begins to lose focus based on the lies we must tell
     ourselves to feel comfortable with what we saw.
-40. The role of government is not to tell me what to do or not to do.  The role of government is to mediate how my behavior affects everyone else.
+40. The role of government is not to tell me what to do or not to do.  The role of government is to mediate how my behavior 
+    affects everyone else.
+41. Sometimes you need to change tactics to meet the moment.  If you continually make change after change, you're simply a 
+    tumbleweed tossed in a windstorm.
