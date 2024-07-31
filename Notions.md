@@ -61,3 +61,4 @@
     affects everyone else.
 41. Sometimes you need to change tactics to meet the moment.  If you continually make change after change, you're simply a 
     tumbleweed tossed in a windstorm.
+42. I'm so tired of dealing with people who have no vision for the future, but rather see only their imagining of the past.
