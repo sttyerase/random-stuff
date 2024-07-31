@@ -59,6 +59,6 @@
     ourselves to feel comfortable with what we saw.
 40. The role of government is not to tell me what to do or not to do.  The role of government is to mediate how my behavior 
     affects everyone else.
-41. Sometimes you need to change tactics to meet the moment.  If you continually make change after change, you're simply a 
-    tumbleweed tossed in a windstorm.
+41. Sometimes you need to change tactics to meet the moment.  If you continually make change after change, you have no strategy.
+    You're a tumbleweed in a tornado.
 42. I'm so tired of dealing with people who have no vision for the future, but rather see only their imagining of the past.
