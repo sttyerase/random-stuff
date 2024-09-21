@@ -61,4 +61,4 @@
     how my behavior affects everyone else.
 41. Sometimes you need to change tactics to meet the moment.  If you continually make change after change, you have no strategy.
     You're a tumbleweed in a tornado.
-42. I'm so tired of dealing with people who have no vision for the future, but rather see only their imagining of the past.
+42. When we lie, the first person to whom we tell the lie is ourself.
