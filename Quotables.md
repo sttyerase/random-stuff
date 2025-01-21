@@ -1,5 +1,6 @@
 ### Quotable Quotes
 
+1. Rebecca Solnit, American writer: Ours is not a one-time battle, but a pursuit to live our values.
 1. Josh Billings, 19th century American humorist:
    "The trouble with people is not that they don't know, but that they know so much that ain't so."
 2. David Hume, philosopher: "Reason is a slave to the passions."
