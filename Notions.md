@@ -62,3 +62,4 @@
 41. Sometimes you need to change tactics to meet the moment.  If you continually make change after change, you have no strategy.
     You're a tumbleweed in a tornado.
 42. When we lie, the first person to whom we tell the lie is ourself.
+43. *EVERY* news organization has bias.  What you want to avoid is the organization that delivers news for a profit, that values clicks and views over mundane facts.
