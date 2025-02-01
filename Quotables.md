@@ -17,3 +17,4 @@
 12. Rev. Raphael Warnock, U.S. Senator from Georgia: "I believe that democracy is the political enactment of a spiritual idea. The notion that each of us has within us a spark of the divine"
 13. Leonardo DaVinci: "The greatest deception men suffer is from their own opinion."
 14. Tears for Fears: "I can't stand this indecision married to a lack of vision.  Everybody wants to rule the world."
+15. Senator Daniel Patrick Moynihan: “Everyone is entitled to their own opinion, but not their own facts.”
