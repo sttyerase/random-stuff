@@ -1,8 +1,10 @@
 ### Quotable Quotes
 
-1. Rebecca Solnit, American writer: Ours is not a one-time battle, but a pursuit to live our values.
+1. Rebecca Solnit, American writer: "Ours is not a one-time battle, but a pursuit to live our values."
 1. Josh Billings, 19th century American humorist:
    "The trouble with people is not that they don't know, but that they know so much that ain't so."
+2. Michael Gerson, Washington Post Op-Ed, 4 June 2018: 
+   "When the king is a liar, truth becomes treason."
 2. David Hume, philosopher: "Reason is a slave to the passions."
 3. Herman Melville in Moby Dick or the White Whale: "....hell is an idea first born on an undigested apple-dumpling;
    and since then perpetuated through the hereditary dyspepsias nurtured by Ramadans."
