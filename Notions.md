@@ -63,3 +63,6 @@
     You're a tumbleweed in a tornado.
 42. When we lie, the first person to whom we tell the lie is ourself.
 43. *EVERY* news organization has bias.  What you want to avoid is the organization that delivers news for a profit, that values clicks and views over mundane facts.
+44. "The end justifies the means" is *rarely* if ever morally acceptable.  We use it to help ourselves feel comfortable with our bad decisions. The "many over the few"
+    *might* provide a better gauge.
+45. I'm so very tired of people painting lipstick on the pig and then telling me over and over again how much I really want to kiss it.
