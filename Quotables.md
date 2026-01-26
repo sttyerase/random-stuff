@@ -24,3 +24,4 @@
 15. Senator Daniel Patrick Moynihan: “Everyone is entitled to their own opinion, but not their own facts.”
 16. Author James Baldwin: “I love America more than any other country in the world, and, exactly for this reason, I insist on the right to criticize her perpetually.”
 17. Werner Heisenberg: "What we observe is not nature itself but nature exposed to our method of questioning."
+18. Aleksandr Solzhenitsyn: “the lie has become not just a moral category, but a pillar of the state. In breaking with the lie, we are performing a moral act, not a political one.”
